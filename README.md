@@ -1,3 +1,4 @@
-![Cover](https://github.com/Dydy003/iOS-Developer-portfolio/assets/173150572/0f0401de-8838-43d6-b478-7739be7c6da3)
+
+[Covere.pdf](https://github.com/user-attachments/files/15912397/Covere.pdf)
 
 .....
